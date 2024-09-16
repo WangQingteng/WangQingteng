@@ -1,5 +1,4 @@
-我是汪清腾，
-我对电脑感兴趣，
-我今年上七年级。
-我来分享一些网站。
-1.共创世界https://www.ccw.site/ 它是scratch的一个社团，可以发布scratch游戏，还有很多拓展。
+1.我的GitHub主页https://github.com/
+2.共创世界https://www.ccw.site/ 
+3.我的共创世界https://www.ccw.site/student/655752ef4b9a4844976e9a01
+4.百度https://www.baidu.com/?tn=62095104_15_oem_dg
